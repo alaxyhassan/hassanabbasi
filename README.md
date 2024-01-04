@@ -29,7 +29,7 @@
 
 🎨 Portfolio: https:hassanabbasi786
 
-💼 LinkedIn: https://www.linkedin.com/in/hammad-nadeem-6673981b5/
+💼 LinkedIn: https://hassanabbasi
 
 📷 Instagram : https:hassanalaxy]
  
